@@ -1,4 +1,4 @@
-# Minepulse ![](https://img.shields.io/badge/since_24/09/22-currently_postponed-red)
+# Minepulse ![](https://img.shields.io/badge/Since_24/09/22-currently_postponed-red)
 The home where the best play. Get carried away with our _countless_ innovations and experience a new community. One which invites everybody, in every skill bracket, providing unique and super fun games.
 
 ### Our philosophy
